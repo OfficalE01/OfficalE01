@@ -1,3 +1,3 @@
 - Hi, I’m E01
 - 🌱 I’m currently learning ...
-- Contact me https://x.com/e_0_1_
+- Contact me on X(Formerly twitter) @e_0_1_
